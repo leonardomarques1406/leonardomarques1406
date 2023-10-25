@@ -3,11 +3,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 
-- 🌱 
-- 👯 
+- 🔭 eu quero ser agricutor
+- 🌱 quero ter uma bar 
+- 👯 quero ir viajar para a cracolandia 
 - 🤔
 - 💬
 - 📫 
 - ⚡ 
 -->
+![](https://media.tenor.com/TgqGRdxJdTEAAAAd/jamaica-sad.gif)
